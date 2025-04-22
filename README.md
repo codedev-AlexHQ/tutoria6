@@ -28,4 +28,10 @@ Desarrollar la constancia en mis compromisos diarios, aunque no siempre tenga mo
 
 ---
 
-💡 *Este es solo el inicio de un proceso. Sé que mejorar toma tiempo, pero con intención, paciencia y apoyo, todo es posible.* 🚀🌈
+## 🔗 Mi Ruta Visual de Crecimiento
+
+He creado mi tablero de crecimiento personal con base en estas ideas. Puedes verlo aquí:  
+👉 [Enlace a mi tablero en Trello / Miro / Notion](https://trello.com/invite/b/6807e77fb53a63ded0209f3e/ATTIc4f14dd62876f57d756c5476e5424cea02DA309E/tutoria6)
+
+*¡Paso a paso, pero con visión clara! Cada acción cuenta.* 💪✨
+
